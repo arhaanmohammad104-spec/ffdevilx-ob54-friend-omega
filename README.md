@@ -1,0 +1,1 @@
+# ffdevilx-ob54-friend-omega
